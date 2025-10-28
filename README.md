@@ -30,6 +30,7 @@
 <img width="900" height="100" alt="Image" src="https://github.com/user-attachments/assets/4e6578fb-931e-4cda-84b2-f05e8e9c0fba" />
 <h3 align="center">DO NOT INTERACT
 <h5 align="center"> basic dni criteria(Transphobic, Homophobic, Racist, Proshipper, MAP / MAP Supporter etc), under 11, over 15, Toxic fandoms, nazi germany cosplayers, soviet union cosplayers, people who support countries horrible actions, people who romanticize genocides, wars, pain etc.
+<h5 align="center">  Third reich, Soviet union, d1ck ponies, t1t ponies strictly dni ++
 <p align="center"><img width="900" height="700" alt="Image" src="https://github.com/user-attachments/assets/b0196803-3835-463a-9e4d-8e817b463075" />
      <h6 align="center">cred to miyaos-2 on tumblr for layout. character: Lauma, Genshin Impact
   <img width="1280" height="135" alt="Image" src="https://github.com/user-attachments/assets/7f5cd4d4-e570-4268-96b0-ece2d68b8724" />
