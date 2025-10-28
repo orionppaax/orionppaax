@@ -5,7 +5,7 @@
      ⠀ She/Any . .  ! 
 ⠀⠀⠀13  𓈒  ⠀SWE ENG  ˖ </h3>
 <h5 align="center"> C+H is always available! although please dont cover me unless we are friends, i like seeing my useless pixels ive colored.
-<h5 align="center"> Im usually at the countryhumans area or underneath the bakery, im usually sitting alone so feel free to int!!
+<h5 align="center"> Im usually at the countryhumans area, transformers area or underneath the bakery, im usually sitting alone so feel free to int!!
 
   
 <img width="900" height="100" alt="Image" src="https://github.com/user-attachments/assets/4e6578fb-931e-4cda-84b2-f05e8e9c0fba" />
