@@ -18,7 +18,7 @@
   
 
 <h5 align="center"> other fandoms:  the summer hikaru died, roblox admins, forsaken(dniuf), royale high, tian guan ci fu/heaven officials blessing, Genshin Impact, Sky: children of the light, DC/MARVEL, Avatar( james cameron films ), Avatar:frontiers of pandora, ijustwantobecool(2), fnaf, phighting, honkai star rail, star stable online, guts and blackpowder, arcane, the boys, peacemaker, creepypasta (revive pls i miss u guys), hamilton, dress to impress, let him go, project sekai, the twilight saga 
-<h5 align="center"> im in alot of other fandoms, if you have a question just ask!
+<h5 align="center"> im in alot of other fandoms, if you have a question just ask. Please dont judge me by what fandoms im in, for example countryhumans!! no, i dont ship countries
 <img width="900" height="100" alt="Image" src="https://github.com/user-attachments/assets/739ac89c-1389-4710-b100-1b730aa19c69" />
 <h3 align="center"> BEFORE YOU FRIEND
 <h5 align="center"> I often mispell on purpose, no this is not a typing quirk i can write normally if youd want me to.
