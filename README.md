@@ -13,11 +13,11 @@
 <h5 align="center"> <img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e10eb80-bb26-4aa6-83a1-f5018fc4e871" /> May Madness 2012
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/874bb100-61d1-4500-84c6-692a2db5d940" /> Transformers
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/62ed50ad-38e8-40b0-b694-c4bd2b54cd4f" /> Supernatural
-<h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/fe1b53e9-be2d-4946-bca5-1e7a23ad5278" /> Countryhumans
+<h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/fe1b53e9-be2d-4946-bca5-1e7a23ad5278" /> Roblox Myths
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/b5da3989-3fde-416e-bd8e-59a06a4aac6b" /> War related movies
   
 
-<h5 align="center"> other fandoms:  the summer hikaru died, roblox admins, forsaken(dniuf), royale high, tian guan ci fu/heaven officials blessing, Genshin Impact, Sky: children of the light, DC/MARVEL, Avatar( james cameron films ), Avatar:frontiers of pandora, ijustwantobecool(2), fnaf, phighting, honkai star rail, star stable online, guts and blackpowder, arcane, the boys, peacemaker, creepypasta (revive pls i miss u guys), hamilton, dress to impress, let him go, project sekai, the twilight saga 
+<h5 align="center"> other fandoms:  the summer hikaru died, roblox admins, forsaken(dniuf), royale high, tian guan ci fu/heaven officials blessing, Genshin Impact, Sky: children of the light, DC/MARVEL, Avatar( james cameron films ), Avatar:frontiers of pandora, ijustwantobecool(2), fnaf, phighting, honkai star rail, COuntryhumans, star stable online, guts and blackpowder, arcane, the boys, peacemaker, creepypasta (revive pls i miss u guys), hamilton, dress to impress, let him go, project sekai, the twilight saga 
 <h5 align="center"> im in alot of other fandoms, if you have a question just ask. Please dont judge me by what fandoms im in, for example countryhumans!! no, i dont ship countries
 <img width="900" height="100" alt="Image" src="https://github.com/user-attachments/assets/739ac89c-1389-4710-b100-1b730aa19c69" />
 <h3 align="center"> BEFORE YOU FRIEND
