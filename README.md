@@ -32,10 +32,11 @@
 <h5 align="center"> basic dni criteria(Transphobic, Homophobic, Racist, Proshipper, MAP / MAP Supporter etc), under 11, over 15 unless i int first. Toxic fandoms, nazi germany cosplayers, soviet union cosplayers, people who support countries horrible actions, people who romanticize genocides, wars, pain etc.
 <h5 align="center">  Third reich, Soviet union, d1ck ponies, t1t ponies strictly dni ++
 <p align="center"><img width="900" height="700" alt="Image" src="https://github.com/user-attachments/assets/b0196803-3835-463a-9e4d-8e817b463075" />
-     <h6 align="center">cred to miyaos-2 on tumblr for layout. character: Lauma, Genshin Impact
+<h6 align="center">cred to miyaos-2 on tumblr for layout. character: Lauma, Genshin Impact
   <img width="1280" height="135" alt="Image" src="https://github.com/user-attachments/assets/7f5cd4d4-e570-4268-96b0-ece2d68b8724" />
-          <h5 align="center"> LINKS etc, etc
-               https://roblox.fandom.com/wiki/2012_April_Fools_incident
+ <h5 align="center"> LINKS etc, etc
+  <h5 align="center">  https://roblox.fandom.com/wiki/2012_April_Fools_incident -- mm12 is NOT af12!!
+<h5 align="center"> https://www.healpalestine.org/
 <h5 align="center"> blinkies/graphics collection
      
 <img width="200" height="113" alt="Image" src="https://github.com/user-attachments/assets/250d6536-7d5c-42b4-94d2-3a88e9f204f9" /> ![Image](https://github.com/user-attachments/assets/b64eef3f-9750-478c-9d50-a746e6229e86) <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7c833e6b-686d-4f31-8ce4-ad915bcd0ffe" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0419e8a4-06c9-4278-9af9-2a631aad4470" /> ![Image](https://github.com/user-attachments/assets/63ac865a-9658-4fcf-abbd-d539ff03e3cb) ![Image](https://github.com/user-attachments/assets/4254eca0-d321-483b-a3f9-7318f239cfdf) ![Image](https://github.com/user-attachments/assets/f8e4304c-6ccf-48cb-836e-587420dac826) <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/f96ddf18-485f-478c-8580-f5002c956b0a" />  ![Image](https://github.com/user-attachments/assets/7d05a68e-abd8-427f-8d04-a46af46663e2) ![Image](https://github.com/user-attachments/assets/bc25635a-0a91-46c0-bf15-bd977c3e58ec) ![Image](https://github.com/user-attachments/assets/a0006cba-2a25-4647-ac4b-a33f9fb90f66) ![Image](https://github.com/user-attachments/assets/39624b57-cb27-4d44-8ae2-ce3ed57ae450) ![Image](https://github.com/user-attachments/assets/6b26131f-0aad-4bd3-807a-dea0d9722a72) ![Image](https://github.com/user-attachments/assets/7d71270f-d988-45d5-83aa-4934434cd48b) ![Image](https://github.com/user-attachments/assets/53c5f69c-2157-4553-b8ab-e2100722c1e1) ![Image](https://github.com/user-attachments/assets/5c01cb43-9956-4c8e-8a8c-275848826128)
