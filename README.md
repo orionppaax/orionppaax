@@ -1,5 +1,5 @@
 ![Image](https://github.com/user-attachments/assets/41b55146-394d-4798-a88f-ecc7bca2801d)
-<h1 align="center"> Akuz / Doom </h1>
+<h1 align="center"> Any Name </h1>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=orionppaax&label=Profile%20views&color=b9dab9&style=flat" alt="orionppaax" /> </p>
 <h5 align="center">        ˖   you    poor,   lost   lamb.        
      ⠀ She/Any . .  ! 
