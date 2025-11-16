@@ -14,7 +14,7 @@
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/874bb100-61d1-4500-84c6-692a2db5d940" /> April Fools 2012
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/62ed50ad-38e8-40b0-b694-c4bd2b54cd4f" /> Supernatural
 <h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/fe1b53e9-be2d-4946-bca5-1e7a23ad5278" /> Roblox Myths
-<h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/b5da3989-3fde-416e-bd8e-59a06a4aac6b" /> War related movies
+<h5 align="center"><img width="30" height="20" alt="Image" src="https://github.com/user-attachments/assets/b5da3989-3fde-416e-bd8e-59a06a4aac6b" /> Dont turn left at the crosssroads.
   
 
 <h5 align="center"> other fandoms:  the summer hikaru died, Transformers, Identity V, roblox admins, forsaken(dniuf), royale high, tian guan ci fu/heaven officials blessing, Genshin Impact, Sky: children of the light, DC/MARVEL, Avatar( james cameron films ), Avatar:frontiers of pandora, ijustwantobecool(2), fnaf, phighting, honkai star rail, COuntryhumans, star stable online, guts and blackpowder, arcane, the boys, peacemaker, creepypasta (revive pls i miss u guys), hamilton, dress to impress, let him go, project sekai, the twilight saga 
